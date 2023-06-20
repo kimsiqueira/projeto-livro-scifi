@@ -1,6 +1,6 @@
 # Capítulo 2
 Filmes de Ficção científica
-Metrópolis
+Metró-polis
 Lançado em 1927, Metropolis é um filme alemão e um dos maiores clássicos do cinema mundial. A história se passa no futuro de 2026, em um ambiente governado por ricos investidores do mundo industrial — que vivem em prédios gigantes. Abaixo deles, os trabalhadores são obrigados a viver em ambientes subterrâneos para que não atrapalhem a vida da alta classe. Metrópolis
 
 O Dia em que a Terra Parou
